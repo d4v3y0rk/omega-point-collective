@@ -151,4 +151,3 @@ These principles are not dogma - they evolve as we learn. But they represent our
 
 ---
 
-**How's that? Should we adjust the tone, add more practical examples, or modify any of the principles?**

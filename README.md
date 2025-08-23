@@ -96,4 +96,3 @@ For questions or collaboration opportunities, please open an issue or join our c
 
 ---
 
-**Perfect! Ready for the repo creation.**
