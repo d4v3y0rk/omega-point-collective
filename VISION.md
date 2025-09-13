@@ -139,11 +139,18 @@ This is not the end of human evolution - it's the beginning of our next phase. A
 
 Every person who joins this project accelerates humanity's path to the Omega Point. Whether you contribute code, ideas, resources, or simply your participation in our governance experiments, you're helping build the future.
 
-The question isn't whether this vision is possible - the technology exists, the economics work, and small-scale examples are already succeeding. The question is how quickly we can scale it.
+The question isn't whether this vision is possible - the technology exists, the economics work, and our analysis suggests strong potential for success. The question is how quickly we can scale it.
+
+**Our Approach:**
+- Systems that evolve faster than they decay
+- Understanding human behavior in abundance
+- Concentrating innovation talent
+- Sharing knowledge freely
+- Learning from each iteration
 
 **Join us. Help us prove it works. Help us build it.**
 
-The Omega Point isn't coming - we are the Omega Point, awakening to our potential.
+The Omega Point isn't a distant dream - it's something we can work toward starting today.
 
 ---
 
